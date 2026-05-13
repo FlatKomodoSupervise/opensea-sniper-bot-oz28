@@ -1,4 +1,4 @@
-# 
+# top NFT Scanner for opensea sniper bot | arbitrage-opportunities & bulk-purchases offers the most advanced opensea sniper bot, with arbitrage-opportunities and bulk-purchases.
 
 
 
